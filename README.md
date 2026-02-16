@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **kaviyanthennarasu@gmail.com**
 
-- 📄 Know about my experiences [https://kaviyant.vercel.app/Kaviyan-T-Resume.pdf](https://kaviyant.vercel.app/Kaviyan-T-Resume.pdf)
+- 📄 Know about my experiences [https://l1nq.com/Kaviyan-T-Resume](https://kaviyant.vercel.app/Kaviyan-T-Resume.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
